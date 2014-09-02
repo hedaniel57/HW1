@@ -1,2 +1,0 @@
-qiehe
-New York Yankees
